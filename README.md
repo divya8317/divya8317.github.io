@@ -1,4 +1,3 @@
-
 # Divya Pamudurthi
 ## Interest: 
 - Art work 
